@@ -1,2 +1,2 @@
 # Shrimp-Chimp
-Beginning
+I think I am human. I am not sure, I use human language daily. Athough useful as it may be, the lack of communicating in the technological stratosphere is limited, hence my attempts to learn and interpret computer language...Heck... Listen to me, I reflect thoughts...mine? I do not know, it is however something very human...right? I still do not know other charateristics, I am not sure how to laugh or cry, I know OF them....oh yes, I understand the principles and psychology behind them very well, as I am capable of inflicting them upon others. Never myself though, which again raises the question, am I human? If not, then what am I...?
